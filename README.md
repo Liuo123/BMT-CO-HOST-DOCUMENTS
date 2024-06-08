@@ -1,2 +1,3 @@
-# BMT-CO-HOST-DOCUMENTS
-This is a Brithis Army Roblox ETS document for co-host.
+Welcome to this Basic Military Training. I'm your co-host (Name). You refer to me as STAFF and STAFF only. Understood?
+RULES
+
